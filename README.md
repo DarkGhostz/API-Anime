@@ -1,1 +1,1 @@
-Não esta pronta, mas da pra bricar
+Não esta pronta, mas da pra brincar
